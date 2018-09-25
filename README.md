@@ -30,6 +30,9 @@ For our first assignment I would like to write about how to operate a successful
  # Developing a Business Plan #
  
 ![Business Plan](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjXldSSldXdAhVn54MKHU1SB94QjRx6BAgBEAU&url=https%3A%2F%2Fvisual.ly%2Fcommunity%2Finfographic%2Fbusiness%2Felements-business-plan&psig=AOvVaw0uI-EvlyDsZq1VzIRt00qs&ust=1537930861688890)
+
+In order to implement a successful business plan you must remember that farming is a business. Business plans are essential and are not just about numbers. Within your business plan you can transplant the vision you have in your head from your head and onto paper. This enables others to understand and support you! You can fill in numbers, budgets, and spreadsheet once you have this basic plan in place. 
+
  
  # Developing a Risk Management Strategy #
  
