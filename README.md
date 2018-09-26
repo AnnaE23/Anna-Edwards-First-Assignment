@@ -27,13 +27,15 @@
  
  # Developing a Business Plan #
  
-![Business Plan](https://i2.wp.com/kudikonsult.com/wp-content/uploads/2016/07/business-plan-image.jpg?w=2340)
+![Business Plan](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQRRqZVeHGopoAVE26A_Y1jZkdxlXtEVM3RYgZcPp8bWiFwpw4a)
 
 In order to implement a successful business plan you must remember that farming is a business. Business plans are essential and are not always just about numbers. Within your business plan you can transplant the vision you have in your head from your head and onto paper. This enables others to understand and support you! You can fill in numbers, budgets, and spreadsheet once you have this basic plan in place. 
 For a free and helpful business plan template go to [Bplans](https://www.bplans.com/downloads/business-plan-template/)
 
 
  # Developing a Risk Management Strategy #
+ 
+ ![Risk Management](http://www.hrinasia.com/wp-content/uploads/2016/02/risk-management.jpg?1) 
  
  # Marketing and Advertising #
 
@@ -42,3 +44,5 @@ For a free and helpful business plan template go to [Bplans](https://www.bplans.
 
  
  # Finacial Management #
+ ![Finacial Management](https://img.haikudeck.com/mg/GPzMO3JvX5_1402084264585.jpg) 
+ 
