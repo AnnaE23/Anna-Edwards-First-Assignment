@@ -132,3 +132,4 @@ Starting and running a successful agricultural business can be a daunting task! 
 [What Is a SWOT Analysis?](https://articles.bplans.com/how-to-perform-swot-analysis/)
 
 [What Is a Business Plan?](https://articles.bplans.com/what-is-a-business-plan/)
+
